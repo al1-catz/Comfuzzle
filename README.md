@@ -1,4 +1,4 @@
-$\textcolor{#8E929B}{\text{falling asleep to the melody of ur voice. . .}}$
+$\textcolor{#8E929B}{\text{" sacrificing my life for u. . ."}}$
 
 $\textcolor{#8E929B}{\text{HI! - im comfuzzle! otehr known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
 
