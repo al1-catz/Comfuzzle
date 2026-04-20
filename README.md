@@ -1,8 +1,10 @@
-$\textcolor{#8E929B}{\text{" sacrificing my life for u. . ."}}$
+$\textcolor{#8E929B}{\text{" love is a only a word . u will have to prove it. . ."}}$
 
-$\textcolor{#8E929B}{\text{HI! - im comfuzzle! oteher known as aquaticcatzz/Aqua/catz/comfuzzle/fizzy/fiz  ᶻ 𝗓 𐰁.}}$
+$\textcolor{#8E929B}{\text{HI! - im comfuzzle! other known as aquaticcatzz/Aqua/catz/comfuzzle/ali/jay  ᶻ 𝗓 𐰁.}}$
 
 > > > > other names if close - ₊⊹
+
+> > > > nicknames aee appericated <3
 
 $\textcolor{#8E929B}{\text{i create cosplays / ocs most of the time!.}}$
 
