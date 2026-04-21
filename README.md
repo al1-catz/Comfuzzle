@@ -1,4 +1,4 @@
-$\textcolor{#8E929B}{\text{" love is a only a word . u will have to prove it. . ."}}$
+$\textcolor{#8E929B}{\text{" love is a only word . u will have to prove it. . ."}}$
 
 $\textcolor{#8E929B}{\text{HI! - im comfuzzle! other known as aquaticcatzz/Aqua/catz/comfuzzle/ali/jay  ᶻ 𝗓 𐰁.}}$
 
