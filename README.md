@@ -1,18 +1,22 @@
-$\textcolor{#8E929B}{\text{" love is a only word . u will have to prove it. . ."}}$
+<p align="center">$\textcolor{#8E929B}{\text{" love is a only word . u will have to prove it. . ."}}$
 
-$\textcolor{#8E929B}{\text{HI! - im comfuzzle! other known as aquaticcatzz/Aqua/catz/comfuzzle/ali/jay  ᶻ 𝗓 𐰁.}}$
+<p align="center">$\textcolor{#8E929B}{\text{HI! - im comfuzzle! other known as aquaticcatzz/Aqua/catz/comfuzzle/ali/jay  ᶻ 𝗓 𐰁.}}$
 
-> > > > other names if close - ₊⊹
+<p align="center"> > > other names if close - ₊⊹ < < 
 
-> > > > nicknames aee appericated <3
+<p align="center"> > > nicknames aee appericated <3 < < 
 
-$\textcolor{#8E929B}{\text{i create cosplays / ocs most of the time!.}}$
+<p align="center">$\textcolor{#8E929B}{\text{i create cosplays / ocs most of the time!.}}$
 
-- { chill at docks or at mcyt area ( mostly c+h / int / w2i / )  ≽^•⩊•^≼
+<p align="center">- { chill at docks or at mcyt area ( mostly c+h / int / w2i / )  ≽^•⩊•^≼
 
-──── ୨୧ ──── here are some things to know abt me! ──── 
+<p align="center">──── ୨୧ ──── here are some things to know abt me! ──── ୨୧ ────
 
-── btw hey if @freakliff if ur reading this i just wanna say u stink a lil..
+─────────────────────────────────────────────────────────
+
+────────────────────────────────────
+
+────────────────
 
 -  - hi! i take any pronouns ( he/she/they/it ) mostly he/him tho ! ! ₊⊹
 
@@ -90,6 +94,6 @@ $\textcolor{#E56B6F}{\text{── . . . ──☆⌒ ₊ · whyd u let me fall? 
 <img width="2048" height="2048" alt="Tak berjudul28" src="https://github.com/user-attachments/assets/ed580f44-5a9a-40b6-9d9b-996b3cdc5d6d" />
 
 
-   $\textcolor{#8E929B}{\text{゛─── this shall be my eternal legacy ──── ゛⊹.}}$
+  <p align="center"> $\textcolor{#8E929B}{\text{゛─── this shall be my eternal legacy ──── ゛⊹.}}$
 
 ---------------- _________________☆⌒ ₊ ·💤 im 𝙰𝚌𝚌𝚞𝚛𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚝𝚎𝚛 ⌒ . . ⊹_________________ ---------------- ![f43usv](https://github.com/user-attachments/assets/d6d30fb4-07cf-493a-bd21-1391e7d2476b)
