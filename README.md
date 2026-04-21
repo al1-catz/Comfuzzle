@@ -60,7 +60,8 @@ __________
 <p align="center"> # 𝐋𝐎𝐎𝐊 𝐀𝐓 𝐌𝐄 ! . . 
 
 
-<p align="center"><img width="748" height="748" alt="Tak berjudul28_20260122224032" src="https://github.com/user-attachments/assets/b5bbf71a-58bd-4fc0-88b6-73e3584e9e99" />
+<p align="center"><img width="736" height="736" alt="Tak berjudul31" src="https://github.com/user-attachments/assets/d737f45e-28a0-4f18-9bc8-a103e61de600" />
+
 
 
 <p align="center">i heavy kin pangi (mcyt) lomedy (mcyt) kihec (mcyt) cheappickle (mcyt) gema (tinggal meninggal show) ! ꉂ(˵˃ ᗜ ˂˵)
@@ -97,4 +98,7 @@ i like drinking more then eating sometimes, i absolutely love water <3
   <p align="center"> $\textcolor{#8E929B}{\text{゛─── this shall be my eternal legacy ──── ゛⊹.}}$
 
 <p align="center"> _________________☆⌒ ₊ ·💤 im 𝙰𝚌𝚌𝚞𝚛𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚝𝚎𝚛 ⌒ . . ⊹_________________ 
-<p align="center"> ![f43usv](https://github.com/user-attachments/assets/d6d30fb4-07cf-493a-bd21-1391e7d2476b)
+
+ 
+ <p align="center"> <img width="2500" height="2500" alt="pngtree-trendy-waiter-serving-png-image_15121990" src="https://github.com/user-attachments/assets/95432f5a-6fe4-4032-b194-46694ea65f3d" />
+
