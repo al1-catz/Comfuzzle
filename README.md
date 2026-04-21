@@ -57,15 +57,15 @@
 - - i overshare information but i like keeping secrets 
 __________ 
 
-# 𝐋𝐎𝐎𝐊 𝐀𝐓 𝐌𝐄 ! . . 
+<p align="center"> # 𝐋𝐎𝐎𝐊 𝐀𝐓 𝐌𝐄 ! . . 
 
 
-<img width="748" height="748" alt="Tak berjudul28_20260122224032" src="https://github.com/user-attachments/assets/b5bbf71a-58bd-4fc0-88b6-73e3584e9e99" />
+<p align="center"><img width="748" height="748" alt="Tak berjudul28_20260122224032" src="https://github.com/user-attachments/assets/b5bbf71a-58bd-4fc0-88b6-73e3584e9e99" />
 
 
-i heavy kin pangi (mcyt) lomedy (mcyt) kihec (mcyt) cheappickle (mcyt) gema (tinggal meninggal show) ! ꉂ(˵˃ ᗜ ˂˵)
+<p align="center">i heavy kin pangi (mcyt) lomedy (mcyt) kihec (mcyt) cheappickle (mcyt) gema (tinggal meninggal show) ! ꉂ(˵˃ ᗜ ˂˵)
 
-_______________extras_______________ ₊⊹
+<p align="center">_______________extras_______________ ₊⊹
 
 i watch > > > mcyt most of the time , people i watch > > > flamefrags, wemmbu, pangi, parrotx2, kunai, wifies, ssundee, itsfunneh, kihec, binoic, doni bobes, alpmau, zmde, apollotv, dr r4t, knarfy, lomedy, brittdyycake , rivv3r, sam and colby, the boys, aquaraps , fishyblox , lorenzside , sun kenji , night over , goofy gang , cookie cutter ,
 
@@ -87,13 +87,14 @@ i like drinking more then eating sometimes, i absolutely love water <3
 
 > > > > _ ` .⋆.Thank u for reading ! And make sure to stay safe , healthy and sane
 
-____𝑾𝒉𝒆𝒏 𝑾𝒊𝒍𝒍 𝒕𝒉𝒊𝒔 𝒃𝒆𝒄𝒐𝒎𝒆 𝒂 𝒅𝒖𝒐?____ 
+<p align="center">____𝑾𝒉𝒆𝒏 𝑾𝒊𝒍𝒍 𝒕𝒉𝒊𝒔 𝒃𝒆𝒄𝒐𝒎𝒆 𝒂 𝒅𝒖𝒐?____ 
 
-$\textcolor{#E56B6F}{\text{── . . . ──☆⌒ ₊ · whyd u let me fall? ⌒ . . ⊹ : " `.}}$  $\textcolor{#6D597A}{\text{[ ₊⊹ ── i know i waited too long. . . ── " ' ].}}$
+<p align="center">$\textcolor{#E56B6F}{\text{── . . . ──☆⌒ ₊ · whyd u let me fall? ⌒ . . ⊹ : " `.}}$  <p align="center">$\textcolor{#6D597A}{\text{[ ₊⊹ ── i know i waited too long. . . ── " ' ].}}$
 
-<img width="2048" height="2048" alt="Tak berjudul28" src="https://github.com/user-attachments/assets/ed580f44-5a9a-40b6-9d9b-996b3cdc5d6d" />
+<p align="center"><img width="2048" height="2048" alt="Tak berjudul28" src="https://github.com/user-attachments/assets/ed580f44-5a9a-40b6-9d9b-996b3cdc5d6d" />
 
 
   <p align="center"> $\textcolor{#8E929B}{\text{゛─── this shall be my eternal legacy ──── ゛⊹.}}$
 
----------------- _________________☆⌒ ₊ ·💤 im 𝙰𝚌𝚌𝚞𝚛𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚝𝚎𝚛 ⌒ . . ⊹_________________ ---------------- ![f43usv](https://github.com/user-attachments/assets/d6d30fb4-07cf-493a-bd21-1391e7d2476b)
+<p align="center"> _________________☆⌒ ₊ ·💤 im 𝙰𝚌𝚌𝚞𝚛𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚝𝚎𝚛 ⌒ . . ⊹_________________ 
+<p align="center"> ![f43usv](https://github.com/user-attachments/assets/d6d30fb4-07cf-493a-bd21-1391e7d2476b)
