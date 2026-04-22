@@ -1,3 +1,6 @@
+<p align="center"><img width="736" height="414" alt="Tak berjudul47_20260422135914" src="https://github.com/user-attachments/assets/7929d010-8cd4-4caa-9723-8d0fb4db84ec" />
+
+
 ![](https://komarev.com/ghpvc/?username=comfuzzle&abbrievated=true&style=plastic&color=blue&label=coolies)
 <img width="719" height="632" alt="Tak berjudul46_20260421214603" src="https://github.com/user-attachments/assets/36cae809-b186-4d3f-bc1a-f472dcbafbf9" />
 
@@ -8,7 +11,7 @@
 
 <p align="center"> > > other names if close - ₊⊹ < < 
 
-<p align="center"> > > nicknames aee appericated <3 < < 
+<p align="center"> > > nicknames are appericated <3 < < 
 
 <p align="center">$\textcolor{#8E929B}{\text{i create cosplays / ocs most of the time!.}}$
 
@@ -103,6 +106,6 @@ i like drinking more then eating sometimes, i absolutely love water <3
 
 <p align="center"> _________________☆⌒ ₊ ·💤 im 𝙰𝚌𝚌𝚞𝚛𝚊𝚝𝚎𝚕𝚢 𝚠𝚊𝚝𝚎𝚛 ⌒ . . ⊹_________________ 
 
- 
- <p align="center"> <img width="2500" height="2500" alt="pngtree-trendy-waiter-serving-png-image_15121990" src="https://github.com/user-attachments/assets/95432f5a-6fe4-4032-b194-46694ea65f3d" />
 
+ 
+<p align="center"><img width="736" height="414" alt="Tak berjudul47_20260422135848" src="https://github.com/user-attachments/assets/3b3af916-c8bd-4ba6-b0f5-ddf7fd9713e6" />
