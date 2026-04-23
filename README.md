@@ -75,7 +75,7 @@ __________
 
 <p align="center">_______________extras_______________ ₊⊹
 
-i watch > > > mcyt most of the time , people i watch > > > flamefrags, wemmbu, pangi, parrotx2, kunai, wifies, ssundee, itsfunneh, kihec, binoic, doni bobes, alpmau, zmde, apollotv, dr r4t, knarfy, lomedy, brittdyycake , rivv3r, sam and colby, the boys, aquaraps , fishyblox , lorenzside , sun kenji , night over , goofy gang , cookie cutter ,
+biigest fan of : pangi , lomedy , al1 , goofygang , doni bobes , ssundee , zmde , sunkenji , levfam , wackawackamuv , lorenzside , nightoverchannel , samandcolby , theboys , apollotv , 
 
 i love mc smps !  currently watching --- > unstable universe smp, lifesteal smp, bliss smp
 
@@ -89,7 +89,7 @@ and i also love food / drinks  ! ♡ - (˵˃ ᗜ ˂˵)
 
 food u could bribe me with (this is a joke) (⁠.⁠ ⁠❛⁠ ⁠ᴗ⁠ ⁠❛⁠.⁠) ``
 
-icecream / pancakes / chips / noodles / cake / sour candy / smoothies / pies / waffles / milkdhakes / 
+icecream / pancakes / chips / noodles / cake / sour candy / smoothies / pies / waffles / milkshakes / coffe
 
 i like drinking more then eating sometimes, i absolutely love water <3
 
